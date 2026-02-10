@@ -1,1 +1,5 @@
-micropolitica y sedimentacion, tecno esteticas, y las tecnopoeticas
+
+# bitacora
+
+- micropolitica y sedimentacion, tecno esteticas, y las tecnopoeticas
+- mas listas
