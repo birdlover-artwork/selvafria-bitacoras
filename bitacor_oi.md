@@ -1,0 +1,1 @@
+micropolitica y sedimentacion, tecno esteticas, y las tecnopoeticas
